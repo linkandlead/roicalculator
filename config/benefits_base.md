@@ -1,0 +1,6 @@
+- Check op doelgroep en positionering
+- Kwalitatieve leadlijst
+- Kwalitatieve connecties
+- Warme connecties in de nieuwsbrief
+- Optimalisatie van LinkedIn-profiel
+- StoryBrand marketing teksten

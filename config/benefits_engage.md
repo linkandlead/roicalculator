@@ -1,0 +1,2 @@
+- Dagelijkse monitoring en opvolging berichten
+- Wekelijkse evaluaties

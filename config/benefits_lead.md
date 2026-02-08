@@ -1,0 +1,2 @@
+- Produceren & versturen nieuwsbrief
+- Minimaal 30 aanmeldingen per relatie-event
